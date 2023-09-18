@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BULILIlililili  AKA:不李 or BULI
+- 🌱 I’m currently learning ...How to disguise yourself as a person.呃，其实就是在学如何伪装成一个人类。
+- 📫 How to reach me ...QQ:2219664619
